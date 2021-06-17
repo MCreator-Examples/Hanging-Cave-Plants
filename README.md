@@ -28,7 +28,7 @@ Procedures have been built by NorthWestTrees Gaming.
 | --- | --- |
 
 ## TUTORIALS
-* [YouTube: Hanging Cave Plants](https://youtu.be/t1gQSwcnhik) - Published on 2021-06-18
+* [YouTube: Hanging Cave Plants](https://youtu.be/wCXFJijXOy8) - Published on 2021-06-18
 
 ## GALLERY
 ![Hanging Cave Plants](https://i.imgur.com/6NgZWQn.png)
